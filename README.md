@@ -1,0 +1,1 @@
+# YeRicq.github.io
